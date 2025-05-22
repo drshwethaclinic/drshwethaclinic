@@ -9,7 +9,7 @@ Welcome to the official GitHub profile of **Dr. Shwetha’s Hair & Skin Clinic**
   📍 Visit us: Nanalnagar, Hyderabad  
   📞 Call/WhatsApp: [+91-XXXXXXXXXX]  
   🌐 Website coming soon  
-  📩 DM us on Instagram: [@drshwethaclinic](https://instagram.com/drshwethaclinic)
+  📩 DM us on Instagram:](https://drshwethasclinic.com/)](https://instagram.com/drshwethaclinic)
 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: We blend traditional care with modern treatments—from **natural hair therapies** to **PRP**, **transplants**, and **scalp detox**—bringing out your most confident self!
